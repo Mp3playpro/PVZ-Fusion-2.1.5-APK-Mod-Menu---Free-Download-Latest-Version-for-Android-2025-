@@ -2,7 +2,7 @@
 
 If you're a fan of the classic Plants vs. Zombies (PVZ) series and you're looking for an exciting new twist, then the PVZ Fusion 2.1.5 APK (Mod Menu) is definitely worth checking out. This modified version of the game brings new features and options to enhance your gameplay experience. In this article, we will cover what PVZ Fusion 2.1.5 APK is, the benefits of using the Mod Menu, how to download and install the APK on your Android device, and some things you should keep in mind when using a Mod APK.
 
-## [PVZ Fusion 2.1.5 APK (Mod Menu)](https://brainwaveai.net./apps/pvz-fusion)
+## [PVZ Fusion 2.1.5 APK (Mod Menu)](https://brainwaveai.net/apps/pvz-fusion)
 
 ![image](https://github.com/user-attachments/assets/f4859f09-297f-428c-ad3c-9d4c7db718d2)
 
